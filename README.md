@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...how to make games
 - 💞️ I’m looking to collaborate on ...making games
 - 
-- 📫 How to reach me ...lilseneca@icloud
+- 📫 How to reach me ...
 - 😄 Pronouns: ...he/him
 - ⚡ Fun fact: ...i fav color is blue and red
 
